@@ -1,1 +1,1 @@
-# shifting-lanes.privacypolicy
+# Ball & Sidekicks privacypolicy
