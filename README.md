@@ -1,1 +1,1 @@
-# Ball & Sidekicks privacypolicy
+# Make Way Privacy policy
